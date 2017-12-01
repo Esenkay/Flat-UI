@@ -128,7 +128,7 @@ Freebies: <https://designmodo.com/freebies/>
 
 Affiliate Program (earn money): <https://designmodo.com/affiliates/>
 
-Social Media:
+Social Media:  
 
 Twitter: <http://www.twitter.com/designmodo>
 
